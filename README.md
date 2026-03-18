@@ -1,5 +1,5 @@
 # 💫 About Me:
-📚 I'm actually a student<br>💻 I want to learn a lot<br>❤️ I love programing
+❤️ I love programing
 
 
 ## 🌐 Socials:
