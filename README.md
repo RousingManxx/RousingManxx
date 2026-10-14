@@ -1,5 +1,5 @@
 # 💫 About Me:
-❤️ I love programing
+❤️🌐
 
 
 ## 🌐 Socials:
